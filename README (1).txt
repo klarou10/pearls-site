@@ -1,0 +1,1 @@
+Ajoute ici les images du Pearls. Les pages peuvent ensuite être enrichies avec des photos de l'établissement, du logo et des événements.
